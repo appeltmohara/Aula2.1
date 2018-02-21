@@ -1,3 +1,4 @@
 Erza Miller
-Sir Ian McKellen
+Gandalf 
 Morgan Freeman
+Masashi Kishimoto
